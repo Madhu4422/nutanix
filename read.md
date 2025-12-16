@@ -1,4 +1,4 @@
 Nutanix learning notes
 
 bgfhfhdhdhqq
-dndl  DLKJDQWDQDCccs
+dndl  DLKJDQWDQDC
